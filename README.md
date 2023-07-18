@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Matthias-Klotz
 - 👀 @ dadaist artwork from the early 1990s 
-- 🌱 I’m currently learning Rausschmeißer-Wize
+- 🌱 I’m currently learning Rausschmeißer-Witze
 
 - 📫 How to reach me : Come to the Entwickler Büro 
 
